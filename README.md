@@ -1,0 +1,2 @@
+# utl_scan_function_with_modifiers_i_did_not_know_tha
+Scan function with modifiers I did not know that.  Keywords: sas sql join merge big data analytics macros oracle teradata mysql sas communities stackoverflow statistics artificial inteligence AI Python R Java Javascript WPS Matlab SPSS Scala Perl C C# Excel MS Access JSON graphics maps NLP natural language processing machine learning igraph DOSUBL DOW loop stackoverflow SAS community.
